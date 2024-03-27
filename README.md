@@ -1,0 +1,2 @@
+# Certyfikaty
+ Posiadane certyfikaty
